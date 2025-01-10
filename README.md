@@ -10,7 +10,7 @@ Maybe some people seeing this account already know this is my secondary one, and
 
 Check out my main account (if you can find it) to know more about me. This is a half-secret account so I don't want to reveal my information here.
 
-I'm currently a member of **The Firefly Project**, a independent group that focuses on translating games and experimenting with some softwares that I know (of course with permissions). The group was just founded not a long time ago, but we will definitely grow more in the future. WE KNOW this name is quite widely used by many other groups, but we still want to use this name.
+I'm currently a member of **The Firefly Project**, a independent group that focuses on translating games and experimenting with some softwares that I know (of course with permissions). The group was just founded not a long time ago, but we will definitely grow more in the future. WE KNOW this name is quite widely used by many other groups, but we still want to use it.
 
 ## Statistics
 

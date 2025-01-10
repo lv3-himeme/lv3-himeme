@@ -1,7 +1,3 @@
-*I hope that the mentioned person herself won't be angry when seeing this GitHub account, even though the probability of her finding out is extremely low. GitHub just isn't as public as Facebook, right?*
-
-It's obvious that this account neither has anything to do with that person, nor it's owned by that person herself. I put her name here just because of I'm her fan and I want to "flex", that's all.
-
 ## What is this account made for?
 
 Maybe some people seeing this account already know this is my secondary one, and will only be used for uploading extremely meaningless projects (such as the [Nahida](https://github.com/lv3-himeme/Nahida) project). I mean my main account also contains meaningless projects entirely made just for fun, but in this account they're even more meaningless.
